@@ -3,7 +3,7 @@
 時間が過ぎてもう午後６時。   
 落陽の隅で、僕はまだ待っている。   
 でもね、見えるのは雨上がりと君の影だけだよ。   
-しょもまんない話だけどさ。      
+しょもない話だけどさ。      
 <!--
 **Ludicrous245/Ludicrous245** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
